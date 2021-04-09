@@ -1,0 +1,1 @@
+# staelet-group-auto
